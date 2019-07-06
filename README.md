@@ -1,1 +1,1 @@
-# Tinder for Dogs - Just for fun
+# Tinder for Dogs 
